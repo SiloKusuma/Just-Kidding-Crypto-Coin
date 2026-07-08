@@ -1,2 +1,2 @@
 # Just-Kidding-Crypto-Coin
-Token boleh bercanda, tapi soal harga ngga boleh bercanda. wkwkwk, JSC To the moon
+Token nya bercanda tapi soal harga boleh di adu. wkwkwk
